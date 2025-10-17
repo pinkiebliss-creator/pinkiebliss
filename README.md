@@ -2,9 +2,9 @@
 HAIII!! I'm Bliss but I also go by Cream!!
 My interests are Sonic, Sanrio, MHA, YGG, SML, MLP, LalaLoopsy, The Wiggles and many more fandoms!
 <img width="553" height="451" alt="IMG_4826" src="https://github.com/user-attachments/assets/157cb572-2b60-4cf9-b0d4-fafbc58ed244" />
-TASTY IF YOUR SEEING THIS, JUST KNOW THAT I LOVE YOU SO MUCH!!!! 
+TASTY IF YOUR SEEING THIS, JUST KNOW THAT I LOVE YOU SO MUCH!!
 <img width="800" height="704" alt="IMG_9900" src="https://github.com/user-attachments/assets/9c674fe9-b872-41fb-9281-5ddded9587a8" />
-If I yap too much, then I apologize
+If I yap too much, then I apologize.
 ![IMG_1255](https://github.com/user-attachments/assets/74d2244c-057b-4bb3-8b28-eb0b3adbf573)
 @rosiepiee IS THE AMY TO MY CREAM!! 
 ![IMG_6885](https://github.com/user-attachments/assets/e7e1ca1a-b6e7-4ad2-b582-2da9996d29fd)
