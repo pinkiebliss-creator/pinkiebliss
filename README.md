@@ -1,7 +1,7 @@
 # pinkiebliss
 HAIII!! I'm Bliss but I also go by Cream!!
+![IMG_5334](https://github.com/user-attachments/assets/40f45b15-ebc7-4513-b959-553eeb82e0cc)
 My interests are Sonic, Sanrio, MHA, YGG, SML, MLP, LalaLoopsy, The Wiggles and many more fandoms!
-<img width="553" height="451" alt="IMG_4826" src="https://github.com/user-attachments/assets/157cb572-2b60-4cf9-b0d4-fafbc58ed244" />
 TASTY IF YOUR SEEING THIS, JUST KNOW THAT I LOVE YOU SO MUCH!!
 <img width="800" height="704" alt="IMG_9900" src="https://github.com/user-attachments/assets/9c674fe9-b872-41fb-9281-5ddded9587a8" />
 If I yap too much, then I apologize.
