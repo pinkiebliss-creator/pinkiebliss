@@ -8,7 +8,7 @@ My pronouns are She/Her !! ♡
 
 My interests are mainly Sonic, Sanrio, MHA, YGG, SML, and MLP
 
-I love you dearest!! <33 (˶˃ ᵕ ˂˶)>⩊<
+I love you dearest!! (∩˃ω˂∩)
 <img width="800" height="704" alt="IMG_9900" src="https://github.com/user-attachments/assets/9c674fe9-b872-41fb-9281-5ddded9587a8" />
 
 Me and Tailsy core!!
