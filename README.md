@@ -2,6 +2,10 @@
 
 HAIII!! I'm Bliss but I also go by Cream!
 
+<img width="1000" height="765" alt="IMG_5250" src="https://github.com/user-attachments/assets/0849b807-dbf8-48d1-accc-e66cbef20988" />
+
+My pronouns are She/Her !! ♡
+
 My interests are mainly Sonic, Sanrio, MHA, YGG, SML, and MLP
 
 TASTY IF YOUR SEEING THIS, JUST KNOW THAT I LOVE YOU SO MUCH! (˶˃ ᵕ ˂˶)
@@ -9,5 +13,5 @@ TASTY IF YOUR SEEING THIS, JUST KNOW THAT I LOVE YOU SO MUCH! (˶˃ ᵕ ˂˶)
 
 If I yap too much, then I apologize.
 
-@rosiepiee IS THE AMY TO MY CREAM!! 
+@rosiepiee is the Amy to my Cream! (Hai Roseee!!) 
 ![IMG_6885](https://github.com/user-attachments/assets/e7e1ca1a-b6e7-4ad2-b582-2da9996d29fd)
