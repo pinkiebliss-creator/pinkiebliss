@@ -27,3 +27,5 @@ I'm a yapper AND a listener!
 ![IMG_3345](https://github.com/user-attachments/assets/789deccb-49f6-406d-a4ee-53565e642824)
 ![IMG_3058](https://github.com/user-attachments/assets/75724f43-8e19-4a9a-8d2b-ba0d3bf23cff)
 ![IMG_3059](https://github.com/user-attachments/assets/615114f0-bccd-4fdb-a248-3b58b7f1b427)
+![IMG_3346](https://github.com/user-attachments/assets/6b0ddbdf-2f87-4707-a017-1654d1ba7ae9)
+![IMG_3347](https://github.com/user-attachments/assets/7be39c27-be03-4ac6-bf31-d3004866a68d)
